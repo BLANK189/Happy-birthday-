@@ -30,7 +30,7 @@ always pray and wish nothing more than to see you flourish, nurturing
 your passions, chasing your dreams, and pushing yourself to grow 
 into the fine lady you’re so capable of becoming. 
 
-No matter where life we go in life or where life takes us, I want
+No matter where we go in life or where life takes us, I want
 you to know I’ll always be rooting for you. I know you said, I'd be
 the last person you'd turn to for anything, but please know if
 you ever need a text, a call, or just someone to listen, 
